@@ -1,4 +1,4 @@
-# 
+# Novo Fences fluxo de trabalho para Mac OS | Profissional Fences fluxo de trabalho para PC Windows. Com desfragmentacao de disco e informacoes do sistema — otimizado para máximo desempenho em cada plataforma.
 
 
 
